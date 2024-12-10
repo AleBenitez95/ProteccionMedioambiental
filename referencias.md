@@ -1,3 +1,8 @@
+
+Obsolescencia Programda:
+
+https://www.ecologiaverde.com/que-es-la-obsolescencia-programada-y-ejemplos-2002.html
+
 ¿Qué es la contaminación ambiental?:
 
 https://concepto.de/contaminacion-ambiental/
